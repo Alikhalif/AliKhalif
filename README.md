@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **DevOps**
 
-- 💬 Ask me about **All**
+- 💬 Ask me about **everything**
 
 - 📫 How to reach me **abdelalikhalif1999@gmail.com**
 
